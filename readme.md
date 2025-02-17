@@ -2,7 +2,7 @@
 
 ### Geography
 
-I live in the city of LEOGNAN, in FRANCE
+I live in the city of LEOGNAN,   in FRANCE
 
 ### Reading
 
